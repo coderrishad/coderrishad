@@ -1,7 +1,7 @@
-(https://media-exp1.licdn.com/dms/image/C5616AQEA8BFPUo_gPg/profile-displaybackgroundimage-shrink_200_800/0/1662970484876?e=1668643200&v=beta&t=iE9yjQdmj9wHdn9IQyxiulv92qSgGddEU-uT0v7HT2U)
+![Professional Web Developer | WordPress Expert | PHP](https://media-exp1.licdn.com/dms/image/C5616AQEA8BFPUo_gPg/profile-displaybackgroundimage-shrink_200_800/0/1662970484876?e=1668643200&v=beta&t=iE9yjQdmj9wHdn9IQyxiulv92qSgGddEU-uT0v7HT2U)
+
 ### Hi there 👋, my name is Rishad
 #### Professional Web Developer | WordPress Expert | PHP
-![Professional Web Developer | WordPress Expert | PHP]
 
 I am Rishad. Over the last 3 years, I have been working as a senior Web Designer, Web Developer and WordPress Developer. As a freelancer Completed 250+ Projects of 39 country's 99 clients at various marketplaces. Former Top Rated Web Developer in top 3% of 56 million skilled professionals @freelancer.com
 
